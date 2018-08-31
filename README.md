@@ -1,6 +1,6 @@
 # GithubAddictFeedback
 
-![-w600](https://ws1.sinaimg.cn/large/006tNbRwly1ful8xgffgaj316o16odl1.jpg)
+![-w600](https://ws4.sinaimg.cn/large/006tNbRwly1fusunvnf53g30m80go103.gif)
 
 Hi, everyone.
 
